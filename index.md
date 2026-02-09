@@ -53,7 +53,7 @@ Hizmet Sağlayıcı, kullanıcı tarafından sağlanan verileri Uygulama kullan�
 
 Verilerinizin silinmesini talep etmek için aşağıdaki e-posta adresi üzerinden bizimle iletişime geçebilirsiniz:
 
-📧 **receponguc@hotmail.com**
+📧 **ongyazilim@gmail.com**
 
 Talepler makul bir süre içerisinde yanıtlanır.
 
@@ -67,7 +67,7 @@ Hizmet Sağlayıcı, 13 yaşın altındaki çocuklardan bilerek kişisel veri to
 
 Eğer bir ebeveyn veya vasiyseniz ve çocuğunuzun kişisel bilgi paylaştığını düşünüyorsanız, lütfen bizimle iletişime geçin:
 
-📧 **receponguc@hotmail.com**
+📧 **ongyazilim@gmail.com**
 
 ---
 
